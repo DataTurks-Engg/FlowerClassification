@@ -324,10 +324,8 @@ detection etc…
 
 Hope this blog would have given you a better insight to what to use when !
 
-**I would love to hear any suggestions or queries. Please write to me at
+**I would love to hear any suggestions or queries. Please write to us at
 contact@dataturks.com**
-
-![](https://cdn-images-1.medium.com/max/1600/1*PZjwR1Nbluff5IMI6Y1T6g@2x.png)
 
 From a quick cheer to a standing ovation, clap to show how much you enjoyed this
 story.
